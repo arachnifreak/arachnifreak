@@ -2,7 +2,7 @@
 
 ![tumblr_d38621cddb011cebd07f9af43a46fc21_ef30c843_1280](https://github.com/user-attachments/assets/bc17aa70-5fc7-4f1f-a987-5e938f0878f6)
 
- Just call me Rue or Ruan , i love horror of any kind ( shitty or not ) and 2000s anime
+ Just call me Rue or Ruru , i love horror of any kind ( shitty or not ) and 2000s anime
  Black 22 Intersex Trans girl
 
 
