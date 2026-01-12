@@ -1,18 +1,20 @@
 # WELCOME TO HELL
 
-![tumblr_d38621cddb011cebd07f9af43a46fc21_ef30c843_1280](https://github.com/user-attachments/assets/bc17aa70-5fc7-4f1f-a987-5e938f0878f6)
+[![tumblr-3c7718791a424574046fde8321b632ad-f3e23076-1280.png](https://i.postimg.cc/bvTBftqV/tumblr-3c7718791a424574046fde8321b632ad-f3e23076-1280.png)](https://postimg.cc/d7hB8DkG)
 
  Just call me Rue or Ruru , i love horror of any kind ( shitty or not ) and 2000s anime
  Black 22 Intersex Trans girl
 
+i call myself "IRL" of alot of characters bc i can , i dont argue with anyone else abt it tho bc thats a waste of time lmao. sucks 2 suck 
+
 
  im usually near docks or the creepypasta / slenderverse era , if not with my friends. also probably stoned when online
  
-
-idc about most discourse but overly edgy white people are the first to be shot down when i see them 
  
 im only ever active on tumblr or discord outside of this game :P
 
-![tumblr_5b567afbb72f05a794b75462c7e0ce99_59efcd94_1280](https://github.com/user-attachments/assets/4d0e10bf-1e99-4f3d-8080-c3e52e8987da)
+no dni since i hide people for any reason
+
+[![marble-hornets-fan-button-by-buttonsmaker-d61xc12.png](https://i.postimg.cc/rFX3WcZC/marble-hornets-fan-button-by-buttonsmaker-d61xc12.png)](https://postimg.cc/c6hFGqSr)
 
 # OKAY THATS IT BYE
