@@ -1,23 +1,16 @@
 <p align="center">
-<img src="https://i.postimg.cc/SK2PKY1j/tumblr_bdd73cb816134bd73e645e0c1a2c722c_662b89ed_2048.png"/>
-</p>
-
-
-
-
-<p align="center">
-<img src="https://i.postimg.cc/Dyb4ZSxG/yuritimlex.png"/>
+<img src="https://i.postimg.cc/wjBZGZkX/ikisshim.png"/>
 </p>
 
 <p align="center">
-<img src="https://i.postimg.cc/pTnyqKH7/tumblr-f624777622ec243e17d07bdb6d35174c-eb3d9199-75.webp"/> <img src="https://i.postimg.cc/XYtt2Nzp/tumblr-07b4d256fd5fb363508386c052f4da33-99e717cb-100.gif"/> <img src="https://i.postimg.cc/3rZ9rbcQ/tumblr_9859ddbaeed1a545f32a994dd303dd65_d346fcc3_75.webp"/> <img src="https://files.catbox.moe/9n8b00.webp" /> <img src="https://i.postimg.cc/HkFFSWhX/tumblr-168e3a38319e10d6c4ad16b83c3d89bb-4ff9797e-250.webp"/> <img src="https://i.postimg.cc/bw446YB1/tumblr-33939dc473beb29eea33941dc16108d7-1a93f488-75.webp"/> <img src="https://i.postimg.cc/SxHHZQv9/tumblr-b51525c95ce103b7fda568e9977407e4-03201a91-75.webp"/>
+<img src="https://i.postimg.cc/gkKb5vbF/tumblr-669d2f5a7c932455c99128873531896f-abef5769-500.webp"/>
 </p>
 
  
  <div align="center"> You can Call me Rue or Ruru </div>
   <div align="center"> 20+ ponytown lurker , i just watch people </div>
    <div align="center"> Slenderverse Fangirl and RPF truther </div>
-    <div align="center"> dont be afraid to talk to me !! </div>
+    <div align="center"> Tim wrights wife and husband trust </div>
 
 
 > [!CAUTION]
@@ -29,6 +22,6 @@
 </p>
 
 <p align="center">
-<img src="https://i.postimg.cc/vmJNx8CV/tumblr_45e5fd87b91794cf8a44e880d7c4abe4_82babd1e_1280.png"/>
+<img src="https://i.postimg.cc/qqbXhbCd/tumblr-30a285aa071b9aac30097592c5ae099e-74ae6bc5-640.webp"/>
 </p>
 
