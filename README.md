@@ -1,23 +1,19 @@
 <p align="center">
-<img src="https://files.catbox.moe/xrwxx6.gif"/>
+  <img src="https://i.postimg.cc/gjdSyVW3/tumblr-6e1d2af3fce74cf62d64ee7c703d0c22-d94d7bff-1280.png" />
 </p>
 
 <p align="center">
-<img src="https://i.postimg.cc/gkKb5vbF/tumblr-669d2f5a7c932455c99128873531896f-abef5769-500.webp"/>
-</p>
-
- 
- <div align="center"> You can Call me Rue or Ruru </div>
-  <div align="center"> 20+ ponytown lurker , i just watch people </div>
-   <div align="center"> I like my silly interests from my childhood </div>
-    <div align="center"> Attention always welcome !! </div>
-
-
-<p align="center">
-<img src="https://i.postimg.cc/kG9mQhxb/tumblr_1f34b305d1a48668d80b9e86b935d4d2_daf09e9d_100.webp" /><img src="https://i.postimg.cc/0Q7vJqJf/tumblr_caf3d0b3d3c123b2ada89cfa43004e5f_e6285f51_100.webp" /><img src="https://files.catbox.moe/sdeh9k.png" /><img src="https://files.catbox.moe/1knmq7.png" /><img src="https://i.postimg.cc/fL0jm3gT/tumblr-812b2109e529ac799a762a47455f5a9d-1a1ae193-100.png"/><img src="https://i.postimg.cc/wvscLtb7/tumblr-e7b61ff281e792191a96bf804614bf08-21fedf05-100.png"/>
+  <img src="https://i.postimg.cc/wjvxjR77/marmeanie.gif" />
 </p>
 
 <p align="center">
-<img src="https://i.postimg.cc/qqbXhbCd/tumblr-30a285aa071b9aac30097592c5ae099e-74ae6bc5-640.webp"/>
+$${\color{#b5f9f9}☆˚⁎⁺˳☆˚⁎⁺˳: .˚⁎⁺˳｡. ˚⁎⁺˳ .｡.:˚ .｡.:˚⁎⁺˳☆˚⁎⁺˳}$$
+$${\color{#ded3f3}22 \space intersex \space Tgirl \space  ✧˖°. \space Soulanni \space Gal \space stuck \space in  \space the \space 2010s!!}$$
+$${\color{#f3b4c6}Lover \space of \space Marble \space Hornets, \space Pokemon, \space Creepypasta, \space and \space much \space more \space ♡}$$
+$${\color{#b6edb0}Interaction \space always \space welcomed, \space atabook \space linked \space below \space profile \space ⸝ \space go \space sign \space It}$$
+$${\color{#b5f9f9}☆˚⁎⁺˳☆˚⁎⁺˳: .˚⁎⁺˳｡. ˚⁎⁺˳ .｡.:˚ .｡.:˚⁎⁺˳☆˚⁎⁺˳}$$
 </p>
 
+<p align="center">
+  <img src="https://i.postimg.cc/gjdSyVW3/tumblr-6e1d2af3fce74cf62d64ee7c703d0c22-d94d7bff-1280.png" />
+</p>
